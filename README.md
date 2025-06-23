@@ -2,4 +2,4 @@
 
 
 ### [Framework Document](Gigabyte_RohanPatel_Jazzzee2025_Document .pdf)
-### [VIDEO PITCH](https://youtu.be/ILtsoIusl4g)
+### [Video Pitch](https://youtu.be/ILtsoIusl4g)
